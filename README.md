@@ -1,7 +1,7 @@
 ### 👋 Hi, I’m David
 
 🌍 You can find me:
-- [LinkedIn](https://www.linkedin.com/in/david-ardions-gomez)
+- [LinkedIn](https://www.linkedin.com/in/davidardions)
 - [Twitter](https://twitter.com/davidardions)
 
 
